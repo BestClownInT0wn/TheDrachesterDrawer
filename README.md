@@ -1,5 +1,4 @@
-<p align=“center”> 
-<img src=“https://readme-typing.demolab.com?
+<p align=“center”><img src=“https://readme-typing.demolab.com?
 font=Syne+Mono&size=28&pause=20&colour= ee1a6a&center=true&vCenter=true&repeat=true&width=700&lines=TEAMWORK+FOR+THE+WIN!;Hold+My+Salt.;Best+clown+in+town!;SURPRISSEEE!+hehehe!” />
  thehey buddy,....... 
 hi i am chester n2 defender trust
