@@ -19,5 +19,8 @@ bye<img width="100" height="80" alt="Unknown" src="https://github.com/user-attac
  im bery steeped btw
 <img width="120" height="81" alt="Unknown 2" src="https://github.com/user-attachments/assets/bc048f86-af30-46dc-bbec-78fd14adf846" />
 
+<img width="560" height="120" alt="Unknown 8" src="https://github.com/user-attachments/assets/8c0cf343-fedb-46d7-b8e9-8a00c043a0bf" />
+
+
 
 
