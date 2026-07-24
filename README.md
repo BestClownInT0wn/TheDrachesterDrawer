@@ -1,8 +1,6 @@
-
- <p 
-  align="center">
-<img src="https://readme-typing-svg.demolab.com?
-font-Syne+Mono&size=28&pause-20&color-229f89&center=true&vCenter-true&repeat=true&width=700&lines-MOM+IM+ON+TV!;1 +TEAMWORK+FOR+WIN+YEAHYOU +GO FIRST!; SURPRISEE!"/>  </p>
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=2ecca1&center=true&vCenter=true&repeat=true&width=700&lines=MOM+IM+ON+TV!;TEAMWORK+FOR+THE+WIN+YEAH+YOU+GO+FIRST!;SURPRISEE!" />
+</p>
   
   🃜🃚🃖🃁🂭🂺.     ⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*‧˚꒰🐾୭ ˚. ᵎᵎ.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔⋆.ೃ𐦍*:･
   
