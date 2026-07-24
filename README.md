@@ -7,8 +7,7 @@ font-Syne+Mono&size=28&pause-20&color-229f89&center=true&vCenter-true&repeat=tru
   
   🃜🃚🃖🃁🂭🂺.     ⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*‧˚꒰🐾୭ ˚. ᵎᵎ.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔*:･⋆.ೃ𐦍*:･⋆𐦍.ೃ࿔⋆.ೃ𐦍*:･
   
-  thehey buddy,....... 
-hi i am chester n2 defender trust
+  chester yumes iwc i do NOT like you and dont run it in my face otherwise dni 
 i can be serious but main,y unserious and i make sxl jokes sometimes please tell me to stop if you're uncomf with it.
 i am workimg on this page as i am focusing on my studies atp
 FEEL VERY FREE TO BMF but just 2 notify you i am a minor
